@@ -1,1 +1,0 @@
-# JonathanSemelak.github.io
